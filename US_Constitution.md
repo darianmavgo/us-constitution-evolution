@@ -1,0 +1,29 @@
+1. Resolved that the Articles of Confederation ought to be so corrected & enlarged as to accomplish the objects proposed by their institution; namely, "common defence, security of liberty and general welfare."
+
+2. Resolved therefore that the rights of suffrage in the National Legislature ought to be proportioned to the Quotas of contribution, or to the number of free inhabitants, as the one or the other rule may seem best in different cases.
+
+3. Resolved that the National Legislature ought to consist of two branches.
+
+4. Resolved that the members of the first branch of the National Legislature ought to be elected by the people of the several States every [term] years...
+
+5. Resolved that the members of the second branch of the National Legislature ought to be elected by those of the first, out of a proper number of persons nominated by the individual Legislatures...
+
+6. Resolved that each branch ought to possess the right of originating Acts; that the National Legislature ought to be impowered to enjoy the Legislative Rights vested in Congress by the Confederation & moreover to legislate in all cases to which the separate States are incompetent...
+
+7. Resolved that a National Executive be instituted; to be chosen by the National Legislature for the term of [term] years...
+
+8. Resolved that the Executive and a convenient number of the National Judiciary, ought to compose a Council of revision with authority to examine every act of the National Legislature before it shall operate...
+
+9. Resolved that a National Judiciary be established to consist of one or more supreme tribunals, and of inferior tribunals to be chosen by the National Legislature...
+
+10. Resolved that provision ought to be made for the admission of States lawfully arising within the limits of the United States...
+
+11. Resolved that a Republican Government & the territory of each State... ought to be guaranteed by the United States to each State.
+
+12. Resolved that provision ought to be made for the continuance of Congress... until a given day after the reform of the articles of Union shall be adopted...
+
+13. Resolved that provision ought to be made for the amendment of the Articles of Union whensoever it shall seem necessary...
+
+14. Resolved that the Legislative Executive & Judiciary powers within the several States ought to be bound by oath to support the articles of Union.
+
+15. Resolved that the amendments which shall be offered to the Confederation, by the Convention ought at a proper time, or times, to be submitted to an assembly or assemblies of Representatives, recommended by the several Legislatures to be expressly chosen by the people, to consider & decide thereon.

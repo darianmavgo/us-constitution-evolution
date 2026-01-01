@@ -1,0 +1,3 @@
+# Amendment XXIII
+
+Section 1. The District constituting the seat of Government of the United States shall appoint... A number of electors of President and Vice President...

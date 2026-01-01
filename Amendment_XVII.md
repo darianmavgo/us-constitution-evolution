@@ -1,0 +1,3 @@
+# Amendment XVII
+
+The Senate of the United States shall be composed of two Senators from each State, elected by the people thereof...

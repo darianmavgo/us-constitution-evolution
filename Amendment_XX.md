@@ -1,0 +1,3 @@
+# Amendment XX
+
+Section 1. The terms of the President and Vice President shall end at noon on the 20th day of January...

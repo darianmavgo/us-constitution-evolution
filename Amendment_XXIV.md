@@ -1,0 +1,3 @@
+# Amendment XXIV
+
+Section 1. The right of citizens of the United States to vote in any primary or other election... shall not be denied or abridged... by reason of failure to pay any poll tax...

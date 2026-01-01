@@ -1,0 +1,3 @@
+# Amendment IV
+
+The right of the people to be secure in their persons, houses, papers, and effects, against unreasonable searches and seizures, shall not be violated...

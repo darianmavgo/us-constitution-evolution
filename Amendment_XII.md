@@ -1,0 +1,3 @@
+# Amendment XII
+
+The Electors shall meet in their respective states and vote by ballot for President and Vice-President...

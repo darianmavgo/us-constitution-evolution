@@ -1,0 +1,3 @@
+# Amendment VI
+
+In all criminal prosecutions, the accused shall enjoy the right to a speedy and public trial...

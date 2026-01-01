@@ -1,0 +1,3 @@
+# Amendment XIII
+
+Section 1. Neither slavery nor involuntary servitude, except as a punishment for crime whereof the party shall have been duly convicted, shall exist within the United States...

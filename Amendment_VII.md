@@ -1,0 +1,3 @@
+# Amendment VII
+
+In Suits at common law, where the value in controversy shall exceed twenty dollars, the right of trial by jury shall be preserved...

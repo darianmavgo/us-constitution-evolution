@@ -1,0 +1,3 @@
+# Amendment XXII
+
+Section 1. No person shall be elected to the office of the President more than twice...

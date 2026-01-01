@@ -1,0 +1,3 @@
+# Amendment XIV
+
+Section 1. All persons born or naturalized in the United States, and subject to the jurisdiction thereof, are citizens of the United States...
